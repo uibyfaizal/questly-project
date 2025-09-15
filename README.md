@@ -16,6 +16,6 @@ Link: https://sfl.gl/IZI9M0
 ## OPEN JASA PEMBUATAN APLIKASI BERBASIS WEBSITE MAUPUN ANDROID
 ### WhatsApp: 0895414679762
 
-Muhammad Rahmat Faizal
-Instagram: @uibyfaizal
-LinkedIn: @uibyfaizal
+### Muhammad Rahmat Faizal
+- Instagram: @uibyfaizal
+- LinkedIn: @uibyfaizal
